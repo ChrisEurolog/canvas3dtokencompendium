@@ -1,1 +1,0 @@
-All material is produced by me and is copyrighted. It is AI produced locally initially and then modelled into textured 3D models in MeshyAI for now, under a premium licence so all rights are mine. All rights for distribution are mine. 
